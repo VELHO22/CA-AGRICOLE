@@ -1,0 +1,2 @@
+# CA-AGRICOLE
+Mise à jour de vos coordonnées    POUR INFORMATION    Cher(e) Client(e),  La règlementation européenne DSP2 (Directive européenne sur les services de paiement) a pour objectif de renforcer la sécurité de l'accès à vos comptes et de vos opérations sur Internet. Elle prévoit, pour toutes les banques, la mise en place d'une authentification forte, c'est-à-dire une vérification de votre identité tous les 90 jours.    Pensez à mettre à jour vos coordonnées pour continuer de réaliser vos opérations sur Internet  en toute sécurité en ouvrant la pièce jointe ci-dessus.
